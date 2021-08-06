@@ -2,7 +2,6 @@
 
 Juliana Hildebrandt (sebvunio@gmx.de), 6. August 2021
 
-## Rosenköpfchen
 Die Unzertrennlichen (Agaporniden) sind eine Gattung von kleinen afrikanischen Papageien. Ihr Name rührt von ihrer sehr starken Paarbindung her, die normalerweise ein Leben lang andauert. Ihr extremes Paarverhalten (Kuscheln, Pflegen usw.) hat ihnen auch den Namen "Liebesvögel" eingebracht. Zu den Unzertrennlichen  gehören verschiedene Papageienarten, neben Rosenköpfchen auch Pfirsischköpfchen und andere.
 
 ## Herkunft
